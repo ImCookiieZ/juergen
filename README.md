@@ -1,1 +1,1 @@
-# juergen
+# Jürgen
